@@ -1,1 +1,5 @@
-
+- 4 elected officials called the kalifs
+- - Abu Bakr
+- - Umar
+- - Uthman
+- - Alia
