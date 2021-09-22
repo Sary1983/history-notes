@@ -1,5 +1,5 @@
-#Muslim Culture
-###Muslim Cities
+# Muslim Culture
+### Muslim Cities
 - Damascus: The leading city and cultural city of Islamic learning, until another city was developed and took the power.
 - Cordoba: The Ummayad capital.
 - Cairo: The Fatimid capital.
