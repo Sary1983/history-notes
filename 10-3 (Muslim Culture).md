@@ -20,3 +20,4 @@
 Responsibilities depended on the income of the husband. Poor families had women working with the husband and taking care of children. Richer families had the women simply managing the household and servants. 
 As time passed, women became more isolated. 
 - Knowledge was very important for muslims.
+- Medicine, Math, Astronomy, Philosophy, Literature
