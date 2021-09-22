@@ -21,3 +21,8 @@ Responsibilities depended on the income of the husband. Poor families had women 
 As time passed, women became more isolated. 
 - Knowledge was very important for muslims.
 - Medicine, Math, Astronomy, Philosophy, Literature
+- Algebra
+- Travel, Calender, Religion
+- Philosophy; Muslim, Indian, Greek
+- Literature: 1001 Arabian Nights
+- Art: Caligraphy, Geometric Patterns 
